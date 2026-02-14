@@ -26,4 +26,4 @@ We may update these terms or app features at any time to improve your experience
 ## Contact Us
 For any questions or content removal requests, email us at:
 
-📧 [support@readtube.app](mailto:chandraprakashsahuofficial@gmail.com)
+📧 [chandraprakashsahuofficial@gmail.com](mailto:chandraprakashsahuofficial@gmail.com)
